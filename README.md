@@ -1,5 +1,7 @@
 # telefoonbezetting-door-de-ggd
 
+https://nl.wikipedia.org/wiki/Zorgverzekeringswet
+
 https://en.wikipedia.org/wiki/Bombardment
 
 https://en.wikipedia.org/wiki/Spamming
